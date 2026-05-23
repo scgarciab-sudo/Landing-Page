@@ -1,1 +1,1 @@
-# Landing-Page
+# Landing-Page -  Todos merecen amor 🐾El propósito de esta página es promover la adopción responsable y permitir que personas interesadas puedan contactarse con la organización para adoptar mascotas y brindarles una nueva oportunidad de vida.
